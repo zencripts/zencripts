@@ -40,7 +40,7 @@ We’d love to hear from you!
 - **Website**: [www.zencripts.com](http://www.zencripts.com)  
 - **Follow Us**:  
   - [Instagram](https://www.instagram.com/zencripts)  
-  - [LinkedIn](#)  
+  - [LinkedIn](https://www.linkedin.com/in/mohamed-farook-haji-mohamed-066469331)  
   - [Twitter](#)  
 
 ---
