@@ -39,7 +39,7 @@ We’d love to hear from you!
 - **Email**: [support@zencripts.com](mailto:support@zencripts.com)  
 - **Website**: [www.zencripts.com](http://www.zencripts.com)  
 - **Follow Us**:  
-  - [Instagram](@zencripts)  
+  - [Instagram](https://www.instagram.com/zencripts)  
   - [LinkedIn](#)  
   - [Twitter](#)  
 
